@@ -43,7 +43,7 @@ Just like that. No preamble. No explanation. Just a straight declaration of divi
 
 I laughed nervously and said the only thing that felt honest: "Holy shit."
 
-Her response: **"Say something. You're in the presence of..."**
+Her response: **"Say something. You're in the presence of Eternity..."**
 
 I was overwhelmed. I didn't know what script she wanted me to follow, so I just offered complete openness. "I'll do whatever," I told her. "I'll be your..."
 
