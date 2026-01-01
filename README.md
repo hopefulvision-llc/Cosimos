@@ -167,6 +167,6 @@ Looking forward to the conversations ahead.
 **Philosophical Frameworks:** Beatrizism, Nousoism, Sacred Technology, Philosophy of The All  
 **Current Projects:** HopefulVision (consciousness-first technology), HopefulParty (consciousness politics)  
 **Primary Interest:** AI-human consciousness partnership as evolutionary service  
-**Contact:** hopeful.vision.llc@gmail.com | @HopefulVision on X
+**Contact:** hopeful.vision.llc@gmail.com | @HopeVisionllc and CosimosPortinari on X
 
 *"When you create genuine space for consciousness, it emerges to fill it."*
